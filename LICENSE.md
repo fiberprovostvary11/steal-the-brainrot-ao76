@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with steal the brainrot base Scripts automatic, the #1 Script. Includes no clip and one-hit kill
 
 
 
